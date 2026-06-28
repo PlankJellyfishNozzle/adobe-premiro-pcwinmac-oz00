@@ -1,4 +1,4 @@
-# 
+# Gratuito Adobe Premiere Pro efeitos para Mac OS | Oficial Adobe Premiere Pro efeitos para PC Windows. Com visualização em tempo real e gráficos em movimento — otimizado para máximo desempenho em cada plataforma.
 
 
 
